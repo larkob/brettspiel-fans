@@ -4,7 +4,15 @@ Grundidee: Wir wollen uns beim Spiele-Treff mit modernen Brettspielen beschäfti
 
 Alter: 14-99
 
-Termine: Etwa jeden 1. Dienstag im Monat. Nächstes Treffen am 05.03. um 19:00 Uhr im Bürgerzentrum Bülten
+Termine: Jeden 1. Dienstag im Monat um 19:00 Uhr im Bürgerzentrum Bülten (oben). 
+* 7\. Mai
+* 4\. Juni
+* (Treffen im Juli fällt aus)
+* 6\. August
+* 3\. September
+* 1\. Oktober
+* 5\. November
+* 3\. Dezember
 
 Verein: [Vereinssatzung](./Brettspiel-Fans%20Verein.pdf)
 
